@@ -1,0 +1,1 @@
+::tschours::CoB TSC Summer Hours`n`t Monday-Friday:`n`t 8 A.M. - 5 P.M.

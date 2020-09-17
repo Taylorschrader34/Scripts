@@ -1,0 +1,1 @@
+::tschours::CoB TSC Fall Hours`nMonday-Thursday:`n   8:00 A.M. - 7:00 P.M.`nFriday:`n   8:00 A.M. - 5:00 P.M.
